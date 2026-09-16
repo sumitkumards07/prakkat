@@ -281,7 +281,7 @@ Get In Touch
 
   * Gmail: reservations@parakkatresorts.com
 
-  * Phone: +91 94 0030 1111
+  * Phone: +91 73510 42519
 
   * Phone: +91 70 2503 8888 | Hotel Phone Number
 
